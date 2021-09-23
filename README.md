@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pelloaspurumunain
+- 👋 Hi, I’m @pelloaspuru
 - 👀 I’m interested in economics
 - 🌱 I’m currently learning economics
 - 💞️ I’m looking to collaborate on economics
